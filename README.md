@@ -42,7 +42,11 @@ Adres: Wysoka 23 (Łańcut)
 
 <img width="598" alt="Zrzut ekranu 2022-05-15 o 11 47 26" src="https://user-images.githubusercontent.com/18122459/168466781-67780c89-69cb-4107-a320-e7ff47605292.png"> 
 
-Zapraszamy na chwilę w piątek wieczorem na domowe wino i nalewki, jeśli planujecie przyjechać już w piątek wieczorem. Chętnych zapraszamy też w dniu ślubu koło 14:00.
+Zapraszamy na chwilę w piątek wieczorem na domowe wino i nalewki, jeśli planujecie pojawić się w Łańcucie już w piątek. 
+
+
+## Orszak weselny pana młodego
+W dniu ślubu, około godziny 13:30 zapraszam chętnych do wspólnego wyjazdu z ośrodka w którym będziecie nocować (Agroturystyka Łańcut) do domu panny młodej. Pozostałych zapraszam prosto do kościoła, zgodnie z zaproszeniem.
 
 ## Śniadanie w niedzielę rano
 Przed powrotem do domów, chcieliśmy Was też zaprosić na śniadanie w niedzielę rano - 10:30-12:30 w sali weselnej. 
