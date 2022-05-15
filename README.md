@@ -2,6 +2,7 @@
 
 ## Nocleg
 Głuchów 12, 37-100 Głuchów
+
 [google maps](https://goo.gl/maps/YpehujgywFyabPw79)
 
 Tutaj google maps pokazują nieprawidłowy dojazd, bo mapa nie jest zaktualizowana jeszcze po remoncie drogi. Google maps będzie proponował zjazd w miejscu oznaczonym X, ale tam teraz stoją ekrany i przejazdu nie ma. Dlatego trzeba zjechać na rondzie przed i jechać równoległą drogą osiedlową, jak narysowane na zielono.
@@ -14,11 +15,13 @@ Każdy pokój ma własną łazienkę. TODO(Suszarki/żelazko) Poza tym w ośrodk
 
 ## Kościół
 Kościół św. Małgorzaty w Wysokiej
+
 Wysoka 78, 37-100 Wysoka
 [google maps](https://goo.gl/maps/LKY9Nz6XbDqPuBHG8)
 
 ## Wesele
 Sady Albigowa 
+
 Albigowa 300, 37-122 Albigowa
 [google maps](https://goo.gl/maps/nTEJNnaNCdpnJXZt7)
 
@@ -26,6 +29,7 @@ Będziemy mieli kierowców odwożących z sali weselnej do noclegów.
 
 ## Dom Panny Młodej
 Adres: Wysoka 23 (Łańcut) 
+
 [google maps](https://goo.gl/maps/H9n5HfieJ1qaUwXM7) - wjazd od skrzyżowania 
 <img width="598" alt="Zrzut ekranu 2022-05-15 o 11 47 26" src="https://user-images.githubusercontent.com/18122459/168466781-67780c89-69cb-4107-a320-e7ff47605292.png"> 
 
