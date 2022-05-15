@@ -8,10 +8,10 @@ Głuchów 12, 37-100 Głuchów
 Tutaj google maps pokazują nieprawidłowy dojazd, bo mapa nie jest zaktualizowana jeszcze po remoncie drogi. Google maps będzie proponował zjazd w miejscu oznaczonym X, ale tam teraz stoją ekrany i przejazdu nie ma. Dlatego trzeba zjechać na rondzie przed i jechać równoległą drogą osiedlową, jak narysowane na zielono.
 <img width="898" alt="Zrzut ekranu 2022-05-15 o 12 00 14" src="https://user-images.githubusercontent.com/18122459/168467227-8b7f98a9-c53d-40d7-afec-ff69d078ef49.png">
 
-Dla tych z Was którzy przyjeżdżają w piątek, pokoje będą dostępne od 18. W sobotę pokoje będą czekać od rana.
+Dla tych z Was którzy przyjeżdżają w piątek, pokoje będą dostępne od 14:00. W sobotę pokoje będą czekać od 11:00.
 Po przyjeździe prosimy o kontakt z właścicielką (515 274 340), ona pomoże przy zakwaterowaniu i wskaże pokoje. 
 
-Każdy pokój ma własną łazienkę. TODO(Suszarki/żelazko) Poza tym w ośrodku jest dostępna kuchnia.
+Każdy pokój ma własną łazienkę. W pokojach pościel i ręczniki. Żelazko ogólnodostępne, nie ma suszarek do włosów. Poza tym w ośrodku jest dostępna kuchnia.
 
 ## Kościół
 Kościół św. Małgorzaty w Wysokiej
