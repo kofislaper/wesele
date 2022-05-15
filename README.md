@@ -39,7 +39,7 @@ Adres: Wysoka 23 (Łańcut)
 Zapraszamy na chwilę w piątek wieczorem, jeśli planujecie przyjechać już w piątek. Zapraszamy też w dniu ślubu koło 14.
 
 ## Śniadanie w niedzielę rano
-Przed powrotem na do domów, chcieliśmy Was też zaprosić na śniadanie w niedzielę rano - 10:30-12:30 w sali weselnej. 
+Przed powrotem do domów, chcieliśmy Was też zaprosić na śniadanie w niedzielę rano - 10:30-12:30 w sali weselnej. 
 
 # Do zobaczenia!
 Gosia i Mateusz
