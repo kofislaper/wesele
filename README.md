@@ -15,6 +15,8 @@ Po przyjeździe prosimy o kontakt z właścicielką (515 274 340), ona pomoże p
 
 Każdy pokój ma własną łazienkę. W pokojach pościel i ręczniki. Żelazko ogólnodostępne, nie ma suszarek do włosów. Poza tym w ośrodku jest dostępna kuchnia.
 
+Koszty związane z zakwaterowaniem ponoszą organizatorzy ;)
+
 ## Kościół
 Kościół św. Małgorzaty w Wysokiej
 
