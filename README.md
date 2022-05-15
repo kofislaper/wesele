@@ -52,4 +52,8 @@ W dniu ślubu, około godziny 13:30 zapraszam chętnych do wspólnego wyjazdu z 
 Przed powrotem do domów, chcieliśmy Was też zaprosić na śniadanie w niedzielę rano - 10:30-12:30 w sali weselnej. 
 
 # Do zobaczenia!
+
+W razie pytań zapraszam do kontaktu na nume 608 464 805 (Mateusz)
+
+
 Gosia i Mateusz
