@@ -28,9 +28,11 @@ Będziemy mieli kierowców odwożących z sali weselnej do noclegów.
 Adres: Wysoka 23 (Łańcut) 
 https://goo.gl/maps/H9n5HfieJ1qaUwXM7 - wjazd od skrzyżowania 
 <img width="598" alt="Zrzut ekranu 2022-05-15 o 11 47 26" src="https://user-images.githubusercontent.com/18122459/168466781-67780c89-69cb-4107-a320-e7ff47605292.png"> 
-Zapraszamy na chwilę w piątek wieczorem, jeśli będziecie planujecie przyjechać w piątek. Zapraszamy też w dniu ślubu koło 14, ale może być problem z parkingiem. 
+
+Zapraszamy na chwilę w piątek wieczorem, jeśli planujecie przyjechać już w piątek. Zapraszamy też w dniu ślubu koło 14.
 
 ## Śniadanie w niedzielę rano
-Przed powrotem na Podlasie, chcieliśmy Was też zaprosić na śniadanie w niedzielę rano - 10:30-12:30 w sali weselnej. 
+Przed powrotem na do domów, chcieliśmy Was też zaprosić na śniadanie w niedzielę rano - 10:30-12:30 w sali weselnej. 
 
-# Zapraszamy!
+# Do zobaczenia!
+Gosia i Mateusz
