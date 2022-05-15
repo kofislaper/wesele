@@ -3,6 +3,8 @@
 Już 21 maja o 15:00 widzimy się na naszym ślubie i weselu. Podrzucamy Wam informacje organizacyjne
 
 ## Nocleg
+Agroturystyka Łańcut
+
 Głuchów 12, 37-100 Głuchów
 
 [google maps](https://goo.gl/maps/YpehujgywFyabPw79)
@@ -13,7 +15,7 @@ Tutaj google maps pokazują nieprawidłowy dojazd, bo mapa nie jest zaktualizowa
 Dla tych z Was którzy przyjeżdżają w piątek, pokoje będą dostępne od 14:00. W sobotę pokoje będą czekać od 11:00.
 Po przyjeździe prosimy o kontakt z właścicielką (515 274 340), ona pomoże przy zakwaterowaniu i wskaże pokoje. 
 
-Każdy pokój ma własną łazienkę. W pokojach pościel i ręczniki. Żelazko ogólnodostępne, nie ma suszarek do włosów. Poza tym w ośrodku jest dostępna kuchnia.
+Każdy pokój ma własną łazienkę. W pokojach pościel i ręczniki. Żelazko ogólnodostępne, nie ma suszarek do włosów. Poza tym w ośrodku jest dostępna w pełni wyposażona kuchnia.
 
 Koszty związane z zakwaterowaniem ponoszą organizatorzy ;)
 
@@ -40,7 +42,7 @@ Adres: Wysoka 23 (Łańcut)
 
 <img width="598" alt="Zrzut ekranu 2022-05-15 o 11 47 26" src="https://user-images.githubusercontent.com/18122459/168466781-67780c89-69cb-4107-a320-e7ff47605292.png"> 
 
-Zapraszamy na chwilę w piątek wieczorem, jeśli planujecie przyjechać już w piątek. Zapraszamy też w dniu ślubu koło 14.
+Zapraszamy na chwilę w piątek wieczorem na domowe wino i nalewki, jeśli planujecie przyjechać już w piątek wieczorem. Chętnych zapraszamy też w dniu ślubu koło 14:00.
 
 ## Śniadanie w niedzielę rano
 Przed powrotem do domów, chcieliśmy Was też zaprosić na śniadanie w niedzielę rano - 10:30-12:30 w sali weselnej. 
